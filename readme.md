@@ -23,7 +23,4 @@ _es como wsp XD_
 
 crazy? i was crazy [once](https://youtu.be/pqMCgfnBx74?si=46gLIERP-T4yUoeO)
 
-~~they locked me in a room:~~
-- a ruuber rooom
-- a ruber room with RATS
-	- and rats made me crazy
+[fuma](https://youtube.com/shorts/Ks_3R7sL52I?si=WtmGhqa0i4KZrXWr)#needthat
